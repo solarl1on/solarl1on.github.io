@@ -19,10 +19,7 @@ Rylan co-founded [CoLab.coop](http://CoLab.coop) in 2010, as the world’s first
 
 Rylan has given his life to creativity, the arts and ecological sustainability. As an activist, Rylan co-founded Giveback, a (too) early cause fundraising platform that precipitated [Kickstarter](https://www.kickstarter.com/?country=US) by linking artist networks to fundraising for causes such as building a music studio for youth in Hunter's Point, Tibetan justice, and the drilling of water wells in Ethiopia.  His love of music goes back to late 90's raving with Aphex Twin and Rabbit in the Moon in the desert of Los Angeles, collaborating with Bhagavan Das at a nada yoga retreat in the hills of Ojai, remixing ambient works from the Desert Dwellers and Mirabai Ceiba on Black Swan / [DD Label], putting out a raggatronic banger with Tippa Irie and Freq Nasty on Skint Records, throwing underground live PA parties as a founder of the Harmonic Temple collective, [eulogizing loved ones by spoken word](https://drive.google.com/file/d/1c7sd3qQYM0ge6s0Biu9HpAzHt1kP4ZCi/view?usp=drive_link),, [painting murals with children](https://www.instagram.com/p/CfFqBQXuv_L/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==), [vocal improvisation at Bali Spirit Music Festival](https://www.instagram.com/p/BwB5efRnbha/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==) or performing renegade EDM guerrilla poetry sets under bridges; Rylan embodies the maxim that 'Life is Art.' 
 
-________
 
-
-<!-- Footnotes themselves at the bottom. -->
 ## Notes
 
 [^1]:
