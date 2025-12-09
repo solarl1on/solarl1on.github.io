@@ -25,9 +25,8 @@ OURS.
 
 Wisdom Traditions towards Collective Liberation.  
 Freedom that is Wild Woven together by Wildlings.
-Free Folks from beyond the Walls. 
-
-That's OURS.  
+Free Folks from beyond the Walls!
+OURS.  
 
 P - Peace?  Yes m'aam.   
 L - Love? Yes sir.
